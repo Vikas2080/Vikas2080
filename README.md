@@ -1,5 +1,4 @@
-# 💫 Hi 👋, I'm Vikas
-
+# 💫 Hi 👋, I'm Vikas a BTECH CSE Student
 
 
 ## 🌐 Socials:
